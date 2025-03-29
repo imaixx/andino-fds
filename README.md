@@ -16,4 +16,4 @@
 
 Please suggest what I should add/change to this script. 
 
-        Download
+JOIN THE DISCORD FOR SUPPORT + MORE FUTURE RELEASES LIKE THIS! https://discord.gg/Uz2kFdut
